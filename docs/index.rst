@@ -1,3 +1,8 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
+
+
 Need Help with Netflix TV? Here's How to Reach Them by Phone
 ============================================
 
